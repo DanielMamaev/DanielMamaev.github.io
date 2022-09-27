@@ -1,1 +1,0 @@
-# DanielMamaev.github.io
